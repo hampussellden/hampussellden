@@ -8,4 +8,4 @@
 > :headphones: Music - EDM, Hip-Hop and Punk  
 > :desktop_computer: Video Games - MMO-RPGs and ARPGs  
 
-![liluzigif](https://giphy.com/gifs/migos-bad-and-boujee-iroh3X1t5VYgKrhwrP.gif)
+![liluzigif](https://giphy.com/gifs/migos-bad-and-boujee-iroh3X1t5VYgKrhwrP)
