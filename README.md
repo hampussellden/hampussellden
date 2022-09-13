@@ -1,7 +1,6 @@
 # Hello I'm Hampus Selldén
 
 ![Wave-gif](https://media.giphy.com/media/8vc2rMUDjhy6Y/giphy.gif)
-![liluzigif](https://giphy.com/gifs/migos-bad-and-boujee-iroh3X1t5VYgKrhwrP)
 
 ### Interests
 > :football: NFL - Fantasy Football  
