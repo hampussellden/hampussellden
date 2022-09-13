@@ -4,7 +4,7 @@
 
 
 ### Love talking about
-> :football: NFL - Fantasy Football
-> :headphones: Music - EDM, Hip-Hop and Punk
-> :desktop_computer: Video Games - MMO-RPGs and ARPGs
+> :football: NFL - Fantasy Football    
+> :headphones: Music - EDM, Hip-Hop and Punk  
+> :desktop_computer: Video Games - MMO-RPGs and ARPGs  
 
